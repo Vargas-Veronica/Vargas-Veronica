@@ -10,5 +10,3 @@ Entusiasmada por la perspectiva de colaborar en proyectos que marquen la diferen
 📧 Email: vargasveronica.ar@gmail.com
 🔗 LinkedIn: www.linkedin.com/in/vargas-veronica
 
-📧 Email: vargasveronica.ar@gmail.com
-🔗 LinkedIn: www.linkedin.com/in/vargas-veronica
